@@ -19,4 +19,4 @@
 
 
 
-Atualmente fazendo curso técnico em Desenvolvimento de Sistemas no Camargo Aranha.
+Atualmente cursando Análise e Desenvolvimento de Sistemas na Universidade São Judas Tadeu.
